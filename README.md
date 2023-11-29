@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @GucciTucci13
-- 👀 I’m interested in writing scripts and building applications 
-- 💞️ I’m looking to collaborate on a new Project- Secret Garden
+- 👀 I’m interested in writing scripts
 - 📫 How to reach me meldrew51@icloud.com
 - 📫 Discord (mizerati1313)
 
