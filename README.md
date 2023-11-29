@@ -2,7 +2,7 @@
 - 👀 I’m interested in writing scripts and building applications 
 - 💞️ I’m looking to collaborate on a new Project- Secret Garden
 - 📫 How to reach me meldrew51@icloud.com
-- 📫 on Discord - Mizerati1313 - https://www.facebook.com/melissa6179?mibextid=LQQJ4d
+- 📫 Discord (mizerati1313)
 
 
 <!---
