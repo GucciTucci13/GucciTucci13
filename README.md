@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @GucciTucci13
-- 👀 I’m interested in writing scripts
-- 📫 How to reach me meldrew51@icloud.com
-- 📫 Discord (mizerati1313)
+- Secret Garden 
 
 
 <!---
